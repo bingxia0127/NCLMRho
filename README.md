@@ -4,5 +4,5 @@
 
 B. Xia, H. Thybo, I.M. Artemieva. 2020. Lithosphere mantle density of the North China Craton. Journal of geophysical research: soild earth. doi:10.1029/2020JB020296
 
-Any question, please let me know: bingxia0127@gmail.com
+Any questions or requests, please let me know: bingxia0127@gmail.com
 
